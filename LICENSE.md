@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Inkscape for macOS filter with secure Inkscape for macOS Filter | content-aware fill + real-time preview. Featuring content-aware fill and real-time preview, it's
 
 
 
